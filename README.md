@@ -4,7 +4,7 @@
  ⠀ ⠀⠀ ⠀
  
 <p align="center">
-<img src="https://files.catbox.moe/kv9q3k.gif" width="300" height="300"> 
+<img src="https://files.catbox.moe/kv9q3k.gif" width="300" height="301"> 
 <p align="center">
 >i struck her face until it ran blood.
 </p>
