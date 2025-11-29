@@ -5,6 +5,8 @@
 <p align="center">
 CD⠀OU⠀RENARD ⠀ ⠀<img src="https://pixels.crd.co/assets/images/gallery28/fa02eeb6.gif?v=9b219e01"> ⠀ ⠀SHI / HIER
 <p align="center">
+INTERSEX ⠀ ⠀ARO ⠀ ⠀LESBIAN
+<p align="center">
 BPDASPD ⠀ ⠀FICTIVE ⠀ ⠀I <3 MY GF DISC
 </p>
 
@@ -14,6 +16,8 @@ BPDASPD ⠀ ⠀FICTIVE ⠀ ⠀I <3 MY GF DISC
 ALWAYS IWCARE ⠀ ⠀PERMA EXTREMELY ON EDGE
 <p align="center">
 EPISODE PRONE ⠀ ⠀&& ⠀ ⠀SPLIT PRONE
+<p align="center">
+INCREDIBLY DISASSOCIATIVE ⠀ ⠀VERY EASILY IRRITATED
 </p>
 
 <p align="center">
