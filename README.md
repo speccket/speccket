@@ -5,7 +5,7 @@
 <p align="center">
 potion ! ⠀ ⠀<img src="https://i.postimg.cc/htjvfyxw/A786-C1-C6-2-F08-49-FF-BDA2-C3-D6508-D2-E59.gif"> ⠀ ⠀shi / hier
 <p align="center">
-intersex ⠀ ⠀aro ⠀ ⠀lesbian
+intersex ⠀ ⠀tfem ⠀ ⠀turigirl
 <p align="center">
 bpdtism ⠀ ⠀fictionkin ⠀ ⠀system
 </p>
