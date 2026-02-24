@@ -5,9 +5,9 @@
 <p align="center">
 <img src="https://files.catbox.moe/lg67w7.png" width="50%" height="50%" >
 <p align="center">
-spectre ou cd ⠀ ⠀<img src="https://i.postimg.cc/44Sby9Yz/bearprint-pixel.png"> ⠀ ⠀it/shi/xer
+potion ou cd ⠀ ⠀<img src="https://i.postimg.cc/44Sby9Yz/bearprint-pixel.png"> ⠀ ⠀it/its/itself
 <p align="center">
-tmasc ⠀aro ⠀intersx ⠀lesbian
+gfluid ⠀aro ⠀intersx ⠀lesbian
 <p align="center">
 bpdtism ⠀aspd ⠀system ^w*
 </p>
